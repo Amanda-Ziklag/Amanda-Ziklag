@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with breaking down technical concepts.
 - 💬 Ask me about my learning Journey and related Internship/ Apprenticeship/ part-time/ full-time/ job oppurtunities.
 - 📫 How to reach me: https://twitter.com/ZiklagC
-- 😄 Pronouns: (She/Her)
+- 😄 Pronouns: (She/Her).
 - ⚡ Fun fact: I'm obsessed with skincare education.
 
